@@ -1,6 +1,6 @@
 
 
-[<img alt="alt_text" width="40px" src="cooltext518697765467096.gif" />]([https://www.google.com/](https://kowalsmith.atabook.org/?page=1))
+[<img alt="alt_text" width="300px" src="cooltext518697765467096.gif" />]([https://www.google.com/](https://kowalsmith.atabook.org/?page=1))
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="350" height="550" alt="image" src="tumblr_ba2db22be4e9c394714fe3f66a2a466f_52382cca_400.gif" />
